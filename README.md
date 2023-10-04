@@ -24,7 +24,8 @@ or here (0.0043 XMR):
 ![immagine](https://user-images.githubusercontent.com/17337009/171695566-420c3948-3fe2-4448-9ba1-472c6a4aaee5.png)
 
 
-
+I do accept paypal too:
+https://www.paypal.me/francescodisales
 
 # Sponsor
 
